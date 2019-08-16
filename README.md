@@ -8,3 +8,11 @@ Parce que franchement Ken il est nul, les sacs de luxes exploitent la pauvreté,
 Comme l'étoile fillante, maitre yoda avait ces déclarations sur l'avenir :
 >Difficile à voir. Toujours en mouvement est l'avenir.
 ![yoda](/yoda.jpg)
+
+#Suite 
+
+Après tout, en y regardant de plus près j'ai réalisé que mon chat il était pas si moche.. Il était juste spécial.
+
+![chat moche](https://media.giphy.com/media/xk3PzvmeO0q52/giphy.gif)
+ 
+ Ma tasse de café n'était pas sale mais décorée par ma fille.. Mon mari lui c'était pas ken.. Non mais il au moins il est pas en plastique!
