@@ -4,3 +4,7 @@ Ce matin, je me suis levée et puis je me suis recouchée. Mon esprit n'était p
 #Continuons ta petite histoire
 
 Parce que franchement Ken il est nul, les sacs de luxes exploitent la pauvreté, mon chat est moche mais je l'aime, ma tasse est dégeux mais c'est ma tasse et j'aime ma vie. 
+*Il était une fois, dans une **galaxie** très très lointaine* une planète regorgée d'étoiles  :sparkles:
+Comme l'étoile fillante, maitre yoda avait ces déclarations sur l'avenir :
+>Difficile à voir. Toujours en mouvement est l'avenir.
+![yoda](/yoda.jpg)
