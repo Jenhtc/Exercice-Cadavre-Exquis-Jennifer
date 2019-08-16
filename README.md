@@ -16,8 +16,9 @@ Après tout, en y regardant de plus près j'ai réalisé que mon chat il était 
 
 ![chat moche](https://media.giphy.com/media/xk3PzvmeO0q52/giphy.gif)
  
- Ma tasse de café n'était pas sale mais décorée par ma fille.. Mon mari lui c'était pas ken.. Non mais il au moins il est pas en plastique!
+ Ma tasse de café n'était pas sale mais décorée par ma fille.. Mon mari lui c'était pas ken.. Non mais lui au moins il est pas en plastique!
 
+## Ma petite blague...
 C'est l'histoire de Yoda, Ken et un chat qui sont sur un bateau? 
 
 Yoda tombe à l'eau :
